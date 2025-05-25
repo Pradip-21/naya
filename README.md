@@ -1,1 +1,1 @@
-# naya
+Nothing can be done now.
